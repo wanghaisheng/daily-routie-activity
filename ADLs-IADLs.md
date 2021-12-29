@@ -1,3 +1,10 @@
+https://www.atrainceu.com/content/8-assistance-activities-daily-living-adls
+
+## 8. Assistance with Activities of Daily Living (ADLs)
+XRX Florida: Alzheimer's Disease and Related Dementias for Specialized Alzheimer’s Adult Day Care, Level 1
+
+
+
 https://betterhealthwhileaging.net/what-are-adls-and-iadls/
 
 Professionals who work in aging often want to know whether an older person needs any help with “ADLs or IADLs.”
