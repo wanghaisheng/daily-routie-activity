@@ -47,6 +47,10 @@
 
 
 
+https://en.wikipedia.org/wiki/Activities_of_daily_living
+https://www.ncbi.nlm.nih.gov/books/NBK470404/
+
+
 
 ## 从游戏中学习 
 当然模拟生活类不止模拟人生4这一款，这一款也不止这一个版本，可以多方综合，得到初稿后进一步分析优化调整
